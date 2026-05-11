@@ -1,4 +1,4 @@
-
+Get the ultimate Photoshop Express for macOS script with secure Photoshop Express for macOS Script | collaboration-tools + auto-enhance. Featuring collaboration-tools and
 
 
 
